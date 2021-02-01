@@ -13,7 +13,7 @@ Normally Terry would have walked down Bleaker streat, but today there was constr
 
 Being on time was not one of Terry’s specialities today would prove to be no different.
 As he mooved slowly.
-As he walked behind the zoo he could see the trees and thick floiage growing above the heavy stone wall that ran behind the zoo; and hear the sounds of animals in the distance.
+As he walked behind the zoo he could see the trees and thick foliage growing above the heavy stone wall that ran behind the zoo; and hear the sounds of animals in the distance.
 Terry had heard the sound before, but today there was a new sound, sort of a cross between an angelic horn and an elephant’s trumpet.
 He stopped to listen and noticed a heavy wooden door in the zoo wall was ajar.
 
